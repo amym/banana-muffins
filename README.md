@@ -5,14 +5,8 @@ original
 
 Peanut Butter Chocolate Chip Banana Bread
 Prep Time: 15 minutes
+Cook Time: 1 hour, 15 minutes<br>
 
-Cook Time: 1 hour, 15 minutes
-
-Yield: 12 servings
-
-Peanut Butter Chocolate Chip Banana Bread
-
-A moist, delicious Peanut Butter Chocolate Chip Banana Bread.
 
 Ingredients<br>
 
@@ -31,7 +25,9 @@ dash of Salt<br>
 1/2 cup Peanut Butter, creamy<br>
 1/2 cup Chocolate Chips<br>
 
-add: 1/4 cup X hemp hearts, chia seeds, bran, flax ground, plus exchange half white flour with brown
+add: 1/2 cup X hemp hearts, chia seeds, bran, flax ground, plus exchange half white flour with brown<br>
+extra milk, 1 egg, dolup of greek yogurt, more vanilla
+
 
 Directions
 
