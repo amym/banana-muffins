@@ -14,7 +14,7 @@ Peanut Butter Chocolate Chip Banana Bread
 
 A moist, delicious Peanut Butter Chocolate Chip Banana Bread.
 
-Ingredients
+Ingredients<br>
 
 1 stick of Unsalted Butter, softened (room temperature)
 1 cup Granulated Sugar
