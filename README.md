@@ -17,8 +17,8 @@ Ingredients<br>
 2 cups All-Purpose Flour<br>
 1 teaspoon Baking Soda<br>
 2 teaspoons Baking Powder<br>
-1 teaspoon Cinnamon<br>
-1/4 teaspoon Nutmeg<br>
+1/2 tbspoon Cinnamon<br>
+1/2 teaspoon Nutmeg<br>
 dash of Salt<br>
 1/2 cup Milk<br>
 2 teaspoons Vanilla Extract<br>
@@ -26,7 +26,8 @@ dash of Salt<br>
 1/2 cup Chocolate Chips<br>
 
 add: 1/2 cup X hemp hearts, chia seeds, bran, flax ground, plus exchange half white flour with brown<br>
-extra milk, 1 egg, dolup of greek yogurt, more vanilla
+extra milk, 1 egg, dolup of greek yogurt, more vanilla, 
+1 extra banana
 
 
 Directions
