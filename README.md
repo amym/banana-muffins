@@ -36,6 +36,8 @@ little extra milk,<br>
 dolup of greek yogurt<br>
 more vanilla, <br>
 1 extra banana
+<br>
+//Notes: Try with 1 egg, still needs more cinamon, greek yogurt good, maybe 1 more banana
 
 Directions
 
