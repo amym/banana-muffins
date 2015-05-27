@@ -1,7 +1,7 @@
 # banana-muffins
 recipe for perfect banana muffin
 
-test 1
+test 2
 
 Peanut Butter Chocolate Chip Banana Bread
 Prep Time: 15 minutes
@@ -35,7 +35,8 @@ little extra milk,<br>
 1 egg<br>
 dolup of greek yogurt<br>
 more vanilla, <br>
-1 extra banana
+2 extra banana
+1/2cup of peacans
 <br>
 //Notes: Try with 1 egg, still needs more cinamon, greek yogurt good, maybe 1 more banana
 
