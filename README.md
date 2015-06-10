@@ -13,19 +13,17 @@ Ingredients<br>
 1 stick of Unsalted Butter, softened (room temperature)<br>
 1 cup Granulated Sugar<br>
 1 Large Egg, room temperature<br>
-3 ripe Bananas, mashed<br>
+5 ripe Bananas, mashed<br>
 2 cups All-Purpose Flour<br>
 1 teaspoon Baking Soda<br>
 2 teaspoons Baking Powder<br>
-1/2 tbspoon Cinnamon<br>
-1/2 teaspoon Nutmeg<br>
+1/2 tbspoon Cinnamon +++<br>
+1/2 teaspoon Nutmeg +<br>
 dash of Salt<br>
-1/2 cup Milk<br>
-2 teaspoons Vanilla Extract<br>
+1/2 cup Milk +<br>
+2 teaspoons Vanilla Extract +++<br>
 1/2 cup Peanut Butter, creamy<br>
 1/2 cup Chocolate Chips<br>
-
-added extra:<br>
 1/2 cup X hemp hearts, <br>
 1/2 cup chia seeds,<br>
 1/2 cup bran,<br>
@@ -34,11 +32,9 @@ exchange half white flour with brown<br>
 little extra milk,<br>
 1 egg<br>
 dolup of greek yogurt<br>
-more vanilla, <br>
-2 extra banana
 1/2cup of peacans
 <br>
-//Notes: Try with 1 egg, still needs more cinamon, greek yogurt good, maybe 1 more banana
+
 
 Directions
 
