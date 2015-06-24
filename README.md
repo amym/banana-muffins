@@ -45,4 +45,4 @@ Next, add 2 cups of all-purpose flour, baking soda, baking powder, cinnamon, nut
 Last, add the 1/2 cup of milk and 2 teaspoons of vanilla extract. Fold in the chocolate chips.
 Butter and flour a 9×5 inch loaf pan. Pour the mixture in the buttered pan.
 
-Bake for 1 hour and 15 minutes. When the banana bread is done baking take out and set to cool before slicing.
+Bake for ~~~~~15 minutes or till your size muffins are done. When the banana bread is done baking take out and set to cool before slicing.
