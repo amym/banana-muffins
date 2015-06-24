@@ -29,9 +29,6 @@ dash of Salt<br>
 1/2 cup chia seeds,<br>
 1/2 cup bran,<br>
 1/2 cup flax ground,<br>
-exchange half white flour with brown<br>
-little extra milk,<br>
-1 egg<br>
 dolup of greek yogurt<br>
 1/2cup of peacans
 <br>
