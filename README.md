@@ -5,7 +5,7 @@ test 2
 
 Peanut Butter Chocolate Chip Banana Bread
 Prep Time: 15 minutes
-Cook Time: 1 hour, 15 minutes<br>
+Cook Time: i use small small mufffins, cook for like 12-14 minutes<br>
 
 
 Ingredients<br>
