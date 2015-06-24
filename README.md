@@ -14,7 +14,8 @@ Ingredients<br>
 1 cup Granulated Sugar<br>
 1 Large Egg, room temperature<br>
 5 ripe Bananas, mashed<br>
-2 cups All-Purpose Flour<br>
+1 cup All-Purpose Flour<br>
+1 cup brown whole spelt Flour<br>
 1 teaspoon Baking Soda<br>
 2 teaspoons Baking Powder<br>
 1/2 tbspoon Cinnamon +++<br>
