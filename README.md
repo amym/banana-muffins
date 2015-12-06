@@ -26,8 +26,8 @@ Ingredients<br>
 1 cup brown flour
 2 teaspoon Baking Soda<br>
 4 teaspoons Baking Powder<br>
-3 teaspoon Cinnamon<br>
-2 teaspoon Nutmeg<br>
+4 teaspoon Cinnamon<br>
+3 teaspoon Nutmeg<br>
 dash of Salt<br>
 1/2 cup Milk<br>
 4 teaspoons Vanilla Extract<br>
@@ -36,7 +36,7 @@ dash of Salt<br>
 
 add: 1/2 cup X coconut, goji powder
 
-1 cup bran, 1 cup flax seed ground, chia seed, hemp harts
+1 cup bran, 1/2 cup flax seed ground, chia seed, 1 cup hemp harts
 
 Directions
 
